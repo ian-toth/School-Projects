@@ -7,6 +7,7 @@ Here you will find a gathering of projects I have done that have mainly been for
 Enjoy browsing some of my work!
 
 Best Regards,
+
 Ian Toth
 
 Contact Me:
